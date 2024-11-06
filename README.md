@@ -1,5 +1,5 @@
 ## Hi there ❤️, Welcome to my world!
-![PinkSpace](https://github.com/user-attachments/assets/9f294063-9293-426f-9229-ba3adfdb9b63)
+![PinkSpace](https://github.com/user-attachments/assets/f0d3910d-7186-4b4a-acae-95dd29d7f9a8)
 
 Hello! I'm Elara ⚧️ from Brazil, and I'm currently pursuing an Associate's Degree in Cybersecurity. 🏫
 
